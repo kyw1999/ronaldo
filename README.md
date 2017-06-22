@@ -1,5 +1,2 @@
 # ronaldo
-ronaldo
- 
- ### ronaldo
- [![ronaldo](http://cfile29.uf.tistory.com/image/2519CF3C58C6788C0708D6)](https://youtu.be/uOSjlSg7D50)
+# ![;avepfh](https://s-media-cache-ak0.pinimg.com/originals/b5/3f/7f/b53f7fdad005e327e227ee05646c1508.jpg)
